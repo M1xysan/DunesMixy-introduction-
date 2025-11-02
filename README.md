@@ -22,7 +22,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 
 ### 🌸 Interests
 ✨ World & character design  
-💻 Building universes in Minecraft / The Sims / Gacha / art apps  
+💻 Building universes in Minecraft / Gacha / art apps  
 🎮 Storytelling, writing, and game concepts  
 🎭 Drag queens, LGBTQ+ culture, self-expression, and aesthetics  
 🎵 Music inspires every world I make  
